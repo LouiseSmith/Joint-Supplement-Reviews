@@ -1,0 +1,2 @@
+# Joint-Supplement-Reviews
+Nowadays, a lot of people and especially the elderly ones are feeling some kind of hip pain. This happens usually due to the fact that most of them weight more than they should or it happens due to the fact that their job demands to stand for a lot of hours. The first thing that overworks in this case is certainly the foot and specifically the hip joints. Click Here: http://www.jointaddreviews.com/
